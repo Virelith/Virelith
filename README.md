@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Virelith
+- 👋 Hi, I’m @Jidan
 - 👀 I’m interested in all gatos
 - 🌱 I’m currently learning baru java wkwkw
 - 💞️ I’m looking to collaborate on sabeb
